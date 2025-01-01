@@ -6,4 +6,4 @@ I will add more features to it
 You Can also contribute to this
 
 # Todo Contribution 
-Message me at https://www.linkedin.com/in/sujal-patel-5b5788323/ This Linked Address
+Message me at https://www.linkedin.com/in/sujal-patel-5b5788323/ This Linkedin Address.
